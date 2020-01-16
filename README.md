@@ -7,3 +7,9 @@
    5. I value progress over perfection. 
    6. I always welcome feedback. I will, more than likely, actively ask for feedback and seek out the right people to have goals and growth conversations with as I find those conversations energizing. 
    7. I strive to balance being present, while always being a forward-thinker. 
+
+
+**Fun Facts:**
+   1. I worked with the team that designed the AR dashboard for the hyperloop to design a AR software prototype to aide spinal surgeons in the operating room. 
+   2. I am a tango and bachata dancer. When I am not working or with family, I am most likely on the dance floor. 
+   3. My family is Argentine so, yes, we love to eat and value family above all else. 
