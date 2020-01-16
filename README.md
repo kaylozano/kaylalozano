@@ -6,3 +6,4 @@
    4. I am generally a self-starter and don't require micro-management. 
    5. I value progress over perfection. 
    6. I always welcome feedback. I will, more than likely, actively ask for feedback and seek out the right people to have goals and growth conversations with as I find those conversations energizing. 
+   7. I strive to balance being present, while always being a forward-thinker. 
