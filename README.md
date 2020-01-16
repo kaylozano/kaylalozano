@@ -7,6 +7,7 @@
    5. I value progress over perfection. 
    6. I always welcome feedback. I will, more than likely, actively ask for feedback and seek out the right people to have goals and growth conversations with as I find those conversations energizing. 
    7. I strive to balance being present, while always being a forward-thinker. 
+   8. I care most about what is best for the user. Sometimes, what is best for the user is not what is easiest for internal politics. I will likely want to partner with leadership to brainstorm how we can influence culture change together, if I notice a mismatch between the two. 
 
 
 **Fun Facts:**   
