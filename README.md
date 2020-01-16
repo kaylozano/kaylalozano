@@ -14,4 +14,4 @@
 **Fun Facts:**   
    1. I am a tango and bachata dancer. When I am not working or with family, I am most likely on the dance floor. 
    2. One of the most fun projects I have worked on was as a product manager for a startup working in the healthcare IP space. I worked with the team that designed the AR dashboard for the hyperloop to design a AR software prototype to aide spinal surgeons in the operating room. 
-   3. My family is Argentine so, yes, we love to eat and value family above all else. 
+   3. My family is Argentine so, yes, we love to eat and be with family. 
