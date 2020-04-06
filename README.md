@@ -9,7 +9,7 @@
    7. I value progress over perfection. 
    8. I always welcome feedback. I will, more than likely, actively ask for feedback but feel free to volunteer thoughts at any time. Thank you in advance!
    9. I strive to balance being present, while always being a forward-thinker. 
-   10. I care most about what is best for the user. 
+   10. I care most about what is best for the user - this is not always as easy or simple as it sounds.
    11. I love being the glue. Bringing teams together to align on goals and process. Improving workflows. Adapting process and presentations to accommodate higher levels of cross-team collaboration. Measuring and monitoring success. These are fun challenges. 
    
 
