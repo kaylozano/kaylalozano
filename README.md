@@ -17,3 +17,4 @@
    1. I am a tango and bachata dancer. When I am not working or with family, I am most likely on the dance floor. 
    2. One of the most fun projects I have worked on was as a product manager for a startup working in the healthcare IP space. I managed the design and development of an AR software prototype to aide spinal surgeons in the operating room. 
    3. My family is Argentine so, yes, we love to eat, be with family, and scream at the TV while watching fútbol. 
+   4. Coming from a latin culture, food is incredibly important and central to relationships and family gatherings. My partner is vegan and so I am currently on an adventure to learn how to cook vegan. All recommendations or suggestions are welcome. 
