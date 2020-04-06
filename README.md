@@ -4,7 +4,7 @@
    2. My work hours may not be your work hours. I expect that you will respond during your own work hours. 
    3. I like to leverage the [Eisenhower Matrix](https://www.eisenhower.me/eisenhower-matrix/) in order to continually gut-check urgency versus significance to best focus my time and energy on the right things
    4.  I believe the most successful PMs are **relational**, big-picture thinkers with a dedication to the details required to align teams and projects to measurable, research-based business goals and outcomes.
-   5. I have a high value for efficiency and organization. If I notice a process that can be improved to either allow for a higher level of efficiency or better cross-team collaboration, then I will probably suggest an process upgrade. 
+   5. I have a high value for efficiency and organization. If I notice a process that can be improved to either allow for a higher level of efficiency or better cross-team collaboration, then I will probably suggest a process upgrade. 
    6. I am generally a self-starter and don't require micro-management. 
    7. I value progress over perfection. 
    8. I always welcome feedback. I will, more than likely, actively ask for feedback but feel free to volunteer thoughts at any time. Thank you in advance!
